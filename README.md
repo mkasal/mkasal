@@ -14,3 +14,23 @@ I really enjoy learning languages and frameworks, also I enjoy ui, ux, and desig
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/mkasal)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/kasalmara/)  
 <a href="https://linkedin.com/in/marija kasalo" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="marija kasalo" height="30" width="40" /></a>
 <a href="https://fb.com/marija kasalo" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="marija kasalo" height="30" width="40" /></a>
+
+                             \\\\\\\
+                            \\\\\\\\\\\\
+                          \\\\\\\\\\\\\\\
+  -----------,-|           |C>   // )\\\\|
+           ,','|          /    || ,'/////|
+---------,','  |         (,    ||   /////
+         ||    |          \\  ||||//''''|
+         ||    |           |||||||     _|
+         ||    |______      `````\____/ \
+         ||    |     ,|         _/_____/ \
+         ||  ,'    ,' |        /          |
+         ||,'    ,'   |       |         \  |
+_________|/    ,'     |      /           | |
+_____________,'      ,',_____|      |    | |
+             |     ,','      |      |    | |
+             |   ,','    ____|_____/    /  |
+             | ,','  __/ |             /   |
+_____________|','   ///_/-------------/   |
+              |===========,'
