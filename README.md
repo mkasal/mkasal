@@ -1,4 +1,4 @@
-### Hi there 👋, Marija K
+### Hi there 👋, I'm Marija 
 ![](https://i.pinimg.com/564x/44/64/dd/4464dd9ed561edfc0a661512aebfbaf2.jpg)
 
 I'm Marija from Croatia and I'm currently learning everything.
